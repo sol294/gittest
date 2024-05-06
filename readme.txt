@@ -1,1 +1,1 @@
-belle vie
+belle vue
